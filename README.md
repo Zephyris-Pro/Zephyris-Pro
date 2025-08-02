@@ -16,3 +16,6 @@
 [![](https://visitcount.itsvg.in/api?id=Zephyris-Pro&icon=0&color=0)](https://visitcount.itsvg.in)
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+<div align="center">
+    <img src="https://count.getloli.com/@Zephyris-Pro?name=Zephyris-Pro&theme=rule34&darkmode=auto"/>
+</div>
